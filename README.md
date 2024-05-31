@@ -111,3 +111,9 @@ Levels:
 TIME FRAMES:
 
 Time frames: All
+
+
+https://files.fm/u/gc3cxnnyju
+
+
+Follow the Fox7Mentorship/signal Deriv Synthetics Only channel on WhatsApp: https://whatsapp.com/channel/0029Vag0rik23n3lyyLRtO2j
