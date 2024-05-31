@@ -1,11 +1,11 @@
 # Deriv-synthetics-trading-only-
 In this find the ultimate strategy to trade Deriv synthetic Boom &amp; Crash 
 
-t.me/dlabcrypto
+Contact us via telegram  t.me/dlabcrypto
 
-RSI indicator strategy 
-MACD 
-EMA
+* RSI indicator strategy 
+* Ichimoku Kinko Hyo
+* Commodity Channel Index
 with regular parameter..
 
 
